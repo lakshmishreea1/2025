@@ -1,2 +1,3 @@
 # 2025
-lets create an impact
+Lets create an impact. I am not here to just live and die. I am here to create an impact. I will, because I should and I can. I will not give up no matter. This is something I have told myself several times. But yes the fear of failure has forced me to flinch back a lot of times, suppress myself a lot of times. Creating a dreamy fantacy in my mind is not the solution, but changing the reality is the colution. I should not compare myself with other. Their situation is different from that of mine. I am here to succeed and I will. Here are my manifestations.
+- By the end of this year I will get a 
